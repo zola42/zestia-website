@@ -1,1 +1,1 @@
-Web stranica za kolegij "Web dizajn"
+Web stranica za kolegij "Web design"
